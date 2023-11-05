@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Data Science and Machine Learning**
 
-- 📫 You can reach me on my mail id **bharshvardhan4@gmail.com**
+- 📫 You can reach me on my mail id **vidyachavan675@gmail.com**
 
 - ⚡ Fun fact **I thik I am more Representative 👋**
 
